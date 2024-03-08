@@ -1,0 +1,1 @@
+# okurmen_js_lesson_js-2_azem_biizak_kyzy
